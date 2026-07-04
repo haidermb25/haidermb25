@@ -126,7 +126,7 @@ A recruitment platform for managing **online interviews and candidate assessment
 
 - LinkedIn: (www.linkedin.com/in/ali-haider-engineer)  
 - GitHub: (https://github.com/haidermb25)  
-- Instagram: (https://twitter.com/yourprofile)  
+- Instagram: (https://www.instagram.com/ali1283haider?igsh=MWNobmpxenZidjRqZg==)  
 - Facebook: (https://www.facebook.com/ali.haider.159620)  
 
 ---
